@@ -6,16 +6,6 @@ Rather than a point of interest, this should be branded as the main draw for tou
 
 Treat River Street from Maple Street to Division Street as an outdoor mall. 
 
-**Motor traffic**
-
-River Street from Cypress (US 31) to Water Street will be closed to all motorist traffic except trollies.
-
-North of Water on Poplar and Filer on Greenbush will be closed to all except deliveries. 
-
-Eemergency vehicles are exception to these two rules.
-
-
-
 River street, from Maple to Division at the least, will be repaved length with brick and heated to keep the street clear and dry year-round without the destructive effect of snowplows. 
 
 Increase trolley presense. Run non-stop throughout the day back and forth down River Street from Manistee Lake to 1st Street Beach.  
