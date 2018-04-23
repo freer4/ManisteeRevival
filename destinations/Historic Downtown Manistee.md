@@ -1,6 +1,6 @@
 The purpose of Historic Downtown Manistee in the Revival will be to create a major, central draw based around the authentic Victorian archetecture, rather than a mere point of interest. You can go to a casino or fishing or skiing or the beach or any of the other attractions all over the place. It's the culmination of all of these draws centered around this unique and well-preserved Victorian city that can help Manistee stand apart.
 
-We also want to keep the "fudgies" from directly interfering with the daily lives of Manistee residents as much as possible. To create this dichotomy within the City Historic Downtown Manistee and 1st Street Beach should be the all-encompassing destination within the city of Manistee itself, with direct shuttles to nearby destinations such as the casino, ski slopes, nature trails, etc.. 
+We also want to keep the "fudgies" from directly interfering with the daily lives of Manistee residents as much as possible while bringing their money our way. To create this dichotomy within the City Historic Downtown Manistee and 1st Street Beach should be the all-encompassing destination within the city of Manistee itself, with direct shuttles to nearby destinations such as the casino, ski slopes, nature trails, etc.. 
 
 From River Street from Maple Street to Division Street would be treated as an "outdoor mall", though that description does not do it justice. These historic buildings would become a unique shopping, dining, and spa experience filled with botique shops in a well-preserved historic setting, but still be able to offer many modern amenities. There should absolutely be a draw for Chicagoans to "hop the boat for a weekend of shopping" away from the crowded city. 
 
@@ -47,3 +47,14 @@ There may also be opportunity to create pedestrian bridges across Poplar, and/or
 Substantial parking space behind the buildings on the south side of River Street will allow easy access for both local residents and those that drove in for their vacation. 
 
 An entrace along each block on the second floor, most likely aligned with public stairwells inside, will provide upper-street-level access. Patrons can still utilize the sidewalks along Poplar and Greenbush - the main advantage to the second-floor entrace will be for patrons who may have difficulty coming up and down the hills. 
+
+**Target audiance**
+
+While local residents should certainly come downtown to enjoy their city, downtown should not provide typical resident-only services. Grocers, banks, and other resident-specific businesses should relocate to other commercial districts in Manistee. Restaurants, spas, and boutique stores that tourists would find attractive should dominate the "Victorian Mall" section of Historic Downtown Manistee. 
+
+**Construction stages**
+
+Mall construction should start at Maple, moving east. The first two blocks (Maple to Greenbush) 
+
+**Outside the Mall**
+Up maple 
