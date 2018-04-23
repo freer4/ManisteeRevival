@@ -41,3 +41,9 @@ The inner wall of this hallway could then be either a glass wall to match the ou
 **Bridging the gap**
 
 There may also be opportunity to create pedestrian bridges across Poplar, and/or Greenbush so that patrons do not need to go down and back up to get to another portion of the "mall". These would need to strictly match the existing architecture. While a bridge across River Street would be enticing, it would have to be weighed against the preclusion of getting the traditional Christmas Tree Sleigh down River Street, unless some sort of draw-bridge situation could be worked out. 
+
+**Parking entraces**
+
+Substantial parking space behind the buildings on the south side of River Street will allow easy access for both local residents and those that drove in for their vacation. 
+
+An entrace along each block on the second floor, most likely aligned with public stairwells inside, will provide upper-street-level access. Patrons can still utilize the sidewalks along Poplar and Greenbush - the main advantage to the second-floor entrace will be for patrons who may have difficulty coming up and down the hills. 
