@@ -56,5 +56,6 @@ While local residents should certainly come downtown to enjoy their city, downto
 
 Mall construction should start at Maple, moving east. The first two blocks (Maple to Greenbush) 
 
-**Outside the Mall**
-Up maple 
+**Manistee outside the Mall**
+
+Directly up Maple street you have both the library and the Ramsdell Theater. Trolley should have a line out here as well. Regular showings. 
