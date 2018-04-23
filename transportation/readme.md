@@ -10,7 +10,7 @@ The more tourists that come to Manistee without their personal vehicles, the les
 
 Greyhounds or other travel busses from major cities in Michigan and surrounding states should at least provide a stop in/near Downtown Manistee, if not a direct route. 
 
-Amtrak runs through Chicago and Cleveland. There should be a route established to bring passengers to town, preferably near the current Train Museum if possible. Train travel is a fun and someone token way to travel for those vacationing.
+Amtrak runs through Chicago and Cleveland. There should be a route established to bring passengers to town, preferably near the current Train Museum if possible. Train travel is a fun and somewhat token way to travel for those vacationing. 
 
 *By sea*
 
@@ -45,4 +45,5 @@ North of Water on Poplar and Filer on Greenbush will be closed to all except del
 Eemergency vehicles are exception to these two rules.
 
 **Parking**
+
 Downtown parking will be entirely concentrated just south of Downtown, directly behind the buildings on the south side of River Street. This will allow easy access for our residents and lont-term parking for visitors who will utilize our local services upon arival. 
